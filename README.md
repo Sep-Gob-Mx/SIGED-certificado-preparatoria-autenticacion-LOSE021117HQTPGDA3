@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOSE021117HQTPGDA3
+LOSE021117HQTPGDA3
